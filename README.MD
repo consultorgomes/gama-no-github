@@ -1,1 +1,1 @@
-estou achando muito bom esse curso, por ser direto e simples.
+estou achando muito bom esse curso, por ser direto e simples
